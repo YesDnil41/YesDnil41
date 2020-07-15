@@ -1,4 +1,7 @@
-### Hi there 👋
+### Lindsey Hogan, Salesforce Professional :cloud:, avid reader :books:, and outdoor explorer :mountain: & :canoe:
+
+- Connect @ -> https://www.linkedin.com/in/lindseykoditekhogan
+
 
 <!--
 **YesDnil41/YesDnil41** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
